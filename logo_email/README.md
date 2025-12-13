@@ -1,0 +1,1 @@
+Logo pour email
