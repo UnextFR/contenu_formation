@@ -1,1 +1,0 @@
-# Images lesson 1
